@@ -3,9 +3,7 @@
 Czas przygotowania: 15 minut
 Liczba porcji: około 60 - 70 pierogów
 
-Kaloryczność kcal: 37 w 1 pierogu bez nadzienia
-Dieta: wegańska, wegetariańska
-
+Kaloryczność kcal: 37 w 1 pier
 Składniki:
 - 500 g mąki pszennej np. typ 500
 - pół łyżeczki soli
